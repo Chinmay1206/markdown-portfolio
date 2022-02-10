@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+A list of my favourite things
+- 🐱
+- 🐶
+- 👟
+- 👕
+- ✈️
+
+in order this is how much i love of my favourite things
